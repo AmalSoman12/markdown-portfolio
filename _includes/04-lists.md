@@ -1,1 +1,12 @@
-Replace this with a list of your favorite things.
+My favourite emojis
+- 😺
+- 🐶
+- 🍨
+- ⭐
+- 💕
+
+my favourite social medias
+
+* 1.facebook
+* 2.whatsapp
+* 3.instgram
